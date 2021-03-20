@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @DudeTech-debug
+- 👀 I’m interested in ML
+- 🌱 I’m currently learning ML
+- 💞️ I’m looking to collaborate on epic projects
+- 📫 How to reach me? via pogchampyay@outlook.com
